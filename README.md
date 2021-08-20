@@ -1,2 +1,3 @@
 # EastBrickton
-who tf reads this
+Working on more
+hopefully will be out in the next month 9/20/21
